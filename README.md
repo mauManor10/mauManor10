@@ -1,15 +1,10 @@
 
 ## Heylo y'allll :]
-I'm Swan, but some other names you can refer to me as are Lunic, Mystic, Tissues, or Dulcie.
 
-I'm a teen, but people over 18+ dni pls unless I know you
 
-My main fandoms/interests are inanimate insanity, tpot, warriors, slendytubbies(And more). Some music I really like is Babymetal, Mitski, Bear Ghost, Weird Al Yankovic, ICP, etc..
+!![tumblr_d3ce047923ca69f3dba0d55e852acf0f_4f279446_100](https://github.com/user-attachments/assets/a178f6d9-20bb-443d-91bc-5369838a882b)
+![tumblr_ca9616eafe139da55121d5ba6095c131_8d88f4ab_100](https://github.com/user-attachments/assets/b35fb042-2460-4751-b52a-6c2949ac5869) ![tumblr_86878ddf102d2cf4f9659c769abef77b_60725ec7_100](https://github.com/user-attachments/assets/a4527671-4132-4c5d-b64c-3487f7faea27)
+![tumblr_cb1918dbaa485a8c3cfe6c2b83a6d8d5_791d75c7_500](https://github.com/user-attachments/assets/39a3885e-75e5-4f5f-99cb-17e8f3fdc836)
 
-HUGE Tissues fan!(I am not handling his death too well.) 
-
-![tumblr_eba05ec74d79ef3b587909ec4ee47671_37023ff6_100](https://github.com/user-attachments/assets/267f96c4-ba65-45bd-8fc8-65b24990992f)
-
-![(75) _Through No Choice of Your Own_ _ Inanimate Insanity S2E17 - YouTube - Google Chrome 15_10_2024 23_29_53](https://github.com/user-attachments/assets/9143535f-6ad4-4595-a0fb-4adb3cec94e7)
-
-hhhh My favorite characters are Toilet, Mepad, Tissues, Tissues, Guardian(Slendytubbies), Anne(Slendytubbies3), Duclinea(PIB), Sandstorm(Warriorrs), YellowFang(Warriors) and a looooooooottttttttttt more
+![tumblr_5a494b05a97bf629c447f40bd47920ac_f8f80447_500](https://github.com/user-attachments/assets/659da593-37b3-464a-a49b-428f4af98ad5)
+Do you guys fw me
