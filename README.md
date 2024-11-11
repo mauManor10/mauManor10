@@ -6,4 +6,5 @@
 Me when knee surgery is tommorrow
 
 ![tumblr_eba05ec74d79ef3b587909ec4ee47671_37023ff6_100](https://github.com/user-attachments/assets/29cb103b-5aeb-423f-a99f-5e2a85aaf208)
+![tumblr_dd6747a97180b92b2714efec970f85bc_99a9e533_100](https://github.com/user-attachments/assets/5c6eb6ed-6507-4986-87b0-2fdd22be2b4d)
 
