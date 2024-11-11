@@ -1,8 +1,9 @@
 
 ## Heylo y'allll :]
-![tumblr_eba05ec74d79ef3b587909ec4ee47671_37023ff6_100](https://github.com/user-attachments/assets/6bc59d92-7d8f-4a4e-84c9-9677191352e3)
+
 
 ![tumblr_c81b11dfd9997f4a1c9c24507853636d_5522a86b_2048](https://github.com/user-attachments/assets/de583978-73ee-4dfa-b2a5-619ca5d8ad13)
+![My wife💜💜💜](https://github.com/user-attachments/assets/2db7bacc-2136-4518-9571-785599b9983b)
 ![tumblr_86878ddf102d2cf4f9659c769abef77b_60725ec7_100](https://github.com/user-attachments/assets/9c2121be-001d-402e-8756-07b394f52231)
 ![tumblr_d3ce047923ca69f3dba0d55e852acf0f_4f279446_100](https://github.com/user-attachments/assets/df691ab1-70db-44e4-aeb2-d41e25e60f98)
 
