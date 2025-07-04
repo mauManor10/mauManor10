@@ -1,13 +1,13 @@
 
 ## ; 💉 . .
 
-
 ![image](https://github.com/user-attachments/assets/f323efe8-1016-4cc7-9eff-f5e66f339eab)
 
-![GSmPQzracAE_Syo](https://github.com/user-attachments/assets/68a308b5-c53e-4bce-8810-5832e7413016)
+![Untitled3_20250704123241](https://github.com/user-attachments/assets/4ac39a41-99ae-48a4-82d9-374c7c8a214c)
 
-![image](https://github.com/user-attachments/assets/6c9f3d5e-02ca-47e2-94e6-d3daee45c866)
-![image](https://github.com/user-attachments/assets/3eb66706-de37-4340-8724-c4fee5090bf5)
+
+
+
 Art credits to @VanishedL8house on twitter, go follow them ^^
 
 ![image](https://github.com/user-attachments/assets/a9b0f31e-1a2b-41a9-b49f-9b6fa2e28c5d)
