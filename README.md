@@ -1,9 +1,12 @@
 
 ## ; 💉 . .
 
-![image](https://github.com/user-attachments/assets/f323efe8-1016-4cc7-9eff-f5e66f339eab)
+<img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/23b5d3f9-1080-4edd-ad11-a235964f4132" />
 
-<img width="1280" height="720" alt="Untitled3_20250801122956" src="https://github.com/user-attachments/assets/86022116-9d0d-4f7d-baae-26b4fc64b2c7" />
+
+<img width="1900" height="1000" alt="Untitled10_20250816222233" src="https://github.com/user-attachments/assets/9ff95d91-4c26-4bfb-97f1-6ec52a22c103" />
+
+
 
 
 
